@@ -1,1 +1,1 @@
-**Yet Another Oridnary Student**
+**Yet Another Ordinary Student**
